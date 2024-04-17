@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MaexeM
-- 👀 I’m interested in Gaming
+- ❤  I’m interested in Gaming
 - 📫 How to reach me dc: maxim_34
-- 😄 Pronouns: turi turi ip ip
+- 🎶 Pronouns: turi turi ip ip
 - ⚡ Fun fact: Das Mathebuch ist der einzige Ort, wo es normal ist, 53 Wassermelonen zu kaufen.
 
 <!---
